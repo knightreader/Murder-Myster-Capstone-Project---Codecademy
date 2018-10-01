@@ -1,1 +1,1 @@
-# Muder-Myster-Capstone-Project---Codecademy
+# Murder-Mystery-Capstone-Project---Codecademy
